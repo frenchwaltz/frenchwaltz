@@ -1,2 +1,2 @@
 <p align="center">
-![](https://files.catbox.moe/f648ak.png)
+<img src="https://files.catbox.moe/f648ak.png" alt="read rentry">
