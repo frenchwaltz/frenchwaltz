@@ -4,3 +4,6 @@
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/f648ak.png" alt="read rentry">
+<p align="center">
+<img src="[https://files.catbox.moe/f648ak.png](https://files.catbox.moe/y7vbii.gif)" alt="read rentry">
+<p align="center">he looks so stupid>
